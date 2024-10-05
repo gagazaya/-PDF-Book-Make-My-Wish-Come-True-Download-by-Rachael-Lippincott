@@ -1,1 +1,8 @@
-# -PDF-Book-Make-My-Wish-Come-True-Download-by-Rachael-Lippincott
+# [PDF] Book Make My Wish Come True Download by Rachael Lippincott
+
+<p><strong>2 second-ago &mdash; Here Options to Downloading or Read Book of Make My Wish Come True Download by: Rachael Lippincott the PDF online for free on Server Amazon, Reddit, Goodreads.</strong></p>
+<p style="text-align: center;"><strong>GET COPY FILE :</strong></p>
+<p style="text-align: center;"><strong><a href="https://us.ebookarea.xyz/?book=207294205-make-my-wish-come-true" target="_blank" rel="noopener">📢 : 🔗 Make My Wish Come True</a>&nbsp;</strong></p>
+<p style="text-align: center;">File format : ePub, PDF, Kindle, AudioBook</p>
+<p><strong>SYNOPSIS :</strong></p>
+<p>A sapphic Netflix-esque Christmas movie meets How to Lose a Guy in 10 Days? from the New York Times bestselling author duo of She Gets the Girl Rachael Lippincott and Alyson Derrick.Hollywood teen actor Arden James' messy reputation is interfering with her career when a notoriously picky director won't give her a role based on her party-girl image. So she and her publicist make up a lie ? not only is she from a small town (true) but her childhood best friend Caroline, is her long-term girlfriend (false) and she can prove it when she goes home for Christmas.?Caroline Beckett hasn't thought about her ex-best friend Arden James for years, focusing instead on her dreams about becoming a journalist. When Arden turns up on her doorstep and promises her an article in Cosmopolitan magazine on their twelve snow-covered romantic days together, Caroline agrees to play along.?But when old feelings start to bubble up, what will fall faster ? Arden and Caroline or the Christmas Eve snow? ?A</p>
